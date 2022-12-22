@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Snarflecakes
+- 32 years old
+- Studying at NCL Cumbernauld NextGen Computing
+- advid learner of cloud technologies
+- slightly obsessed with cabbages 
